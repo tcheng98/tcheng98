@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tcheng98 or Tak
+- 👋 Hi, I’m @tcheng98
 - 👀 I’m interested in Web3
 - 🌱 I’m currently learning any thing in technology
 - 💞️ I’m looking to collaborate on anything intesting. 
